@@ -6,9 +6,9 @@
 
 
 
- <img width="535" height="353" alt="3723" src="https://github.com/user-attachments/assets/92fb57d8-e0c0-463f-853d-c41719a14184" /> 
-
-   rihito ur so cool
+ <p align="center"><img width="535" height="353" alt="3723" src="https://github.com/user-attachments/assets/92fb57d8-e0c0-463f-853d-c41719a14184" /> 
+   
+   rihito ur so cool♡♡♡♡♡
 
 
 ㅤ
